@@ -63,10 +63,14 @@ Turma da Mônica é uma série de histórias em quadrinhos e uma franquia de mí
 
 princesinha Sofia 
 
+A Princesa Sofia” conta a história duma menina comum que se torna princesa e que, através do seu percurso, aprende que possuir as características duma verdadeira princesa – honestidade, lealdade, compaixão e graciosidade – é o que torna alguém realmente real
 
+![](https://media1.tenor.com/m/yBq7aeVxWq8AAAAd/sofia-the-first-princess-sofia.gif)
 
+Toy story 
+A história se passa num mundo onde os brinquedos têm vida e fingem ser inanimados quando os humanos estão por perto, com o enredo centrando-se na relação entre ...
 
-
+![](https://media1.tenor.com/m/E63JjgQ2E6UAAAAd/toy-story-rex.gif)
 
 
  
